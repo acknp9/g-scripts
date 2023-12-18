@@ -1,4 +1,4 @@
 # scripts
 
-// Providing Blogger Platform High Quality Templates 
-// visit pikitemplates.com for more information 
+// Providing Yoga related articles in this website 
+// visit sosyalmekan.net for more information 
